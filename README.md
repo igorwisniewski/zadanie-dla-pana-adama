@@ -1,0 +1,1 @@
+# zadanie-dla-pana-adama
